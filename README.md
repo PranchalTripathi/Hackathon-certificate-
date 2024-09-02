@@ -1,1 +1,1 @@
-# Hackathon-certificate-
+# Hackathon-certificate.
